@@ -10,6 +10,8 @@ Inevitably, I'll make mistakes. Perhaps you'll notice an important one, and you'
 
 I hope you'll pick the essay(s) that most interest you, and read them with an open mind. Perhaps you'll learn from my thought process. I hope we all grow from this effort.
 
+## Topics
+
 The topics I intend to write on are:
 
 + An answer to Christians about why the atheist perspective is coherent
